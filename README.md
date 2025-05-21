@@ -61,8 +61,6 @@ For more FAQs, visit our [Help Center](#).
 
 We are here to help! If you have any questions, feedback, or need assistance, please feel free to contact us.
 
-- **Email:** c.winner1303@gmail.com
-- **Phone:** +216-51-348-259
 
 You can also reach out to us through our [Contact Form](#). Comming out very soon
 
